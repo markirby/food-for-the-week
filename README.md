@@ -30,7 +30,33 @@ Freeze some of the sauce
 
 Breakfast:
 
+Eggs with spinach and parmesan (Bon Appetit Feb 13)
+
 * Eggs
+* Spinach
 
 Make stock and check out freezer, make inventory
+
+Prepare the herrings
+
+### Monday
+
+No cooking needed
+
+Take out the curry
+
+### Tuesday
+
+Chicken Curry (frozen)
+
+Take out the Korean Pies 
+
+### Weds
+
+Korean pies
+
+* Salad
+
+### Thurs
+
 
