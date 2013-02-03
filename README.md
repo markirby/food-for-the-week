@@ -35,28 +35,33 @@ Eggs with spinach and parmesan (Bon Appetit Feb 13)
 * Eggs
 * Spinach
 
-Make stock and check out freezer, make inventory
-
-Prepare the herrings
+Make stock
 
 ### Monday
 
-No cooking needed
+Make Pork baguette
+
+Finish marmalade and stock
+
+* 2 lemons
+* 2kg sugar
+* ice cube bags
 
 Take out the curry
 
 ### Tuesday
 
+Dinner:
+
 Chicken Curry (frozen)
+
+### Weds
 
 Take out the Korean Pies 
 
-### Weds
+### Thurs
 
 Korean pies
 
 * Salad
-
-### Thurs
-
 
