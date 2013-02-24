@@ -2,66 +2,72 @@
 
 Just the meals I'm cooking each week, in a single file, committed week by week for my reference
 
-## Feb 2nd - 
-
-### Saturday
-
-Eat out for lunch, burger place or something
-
-Then:
-
-Marmalade
-Bake bread
-
-* Lemons
-
-Remove tomato sauce and gnudi from freezer for Sundays dinner
-
-Then:
-
-Orecchiette with Kale and Breadcrumbs (Bon Appetit Feb 13)
-
-* Kale
-* Orecchiette
-
-Freeze some of the sauce
+## Feb 24th - 
 
 ### Sunday
 
-Breakfast:
-
-Eggs with spinach and parmesan (Bon Appetit Feb 13)
-
-* Eggs
-* Spinach
-
-Make stock
+* Take out pies
 
 ### Monday
 
-Make Pork baguette
+Oscar Dips
 
-Finish marmalade and stock
+Silver Linings Playbook
+http://www.bbcgoodfood.com/recipes/4526/cream-cheese-and-sweet-chilli-dip
 
-* 2 lemons
-* 2kg sugar
-* ice cube bags
+* 200g cream cheese
 
-Take out the curry
+Life of Pi
+
+* Tiger bread
+
+Zero Dark Thirty
+http://www.guardian.co.uk/lifeandstyle/wordofmouth/2011/aug/11/how-to-make-perfect-hummus
+
+* Chickpeas can 800g
+* Pitta
+
+* Take out gnochhi
+
+Django unchained
+http://spoonful.com/recipes/roasted-red-pepper-feta-dip
+
+* Jar roasted red peppers
+* Feta
+* Nachos
+
+Beasts of the southern wild
+http://www.detroitnews.com/article/20130201/OPINION03/302010302
+
+* 1 pound crabmeat
+* Celery
+* Carrot
+* Breadsticks
+
+Les Misérables
+
+* French bread
+
+Lincoln
+
+* Apple cake
+
+Argo
+http://food52.com/recipes/3541-yoghurt-spinach-dip-borani-esfanaaj-in-the-persian-manner
+
+* 2 packet baby spinach
+* walnuts
+* Greek yoghurt
+* Dried mint
+* Garlic head
+
 
 ### Tuesday
 
-Dinner:
-
-Chicken Curry (frozen)
+Korean pies
 
 ### Weds
 
-Take out the Korean Pies 
+Gnochhi
 
-### Thurs
-
-Korean pies
-
-* Salad
-
+### Thurs - No cooking
