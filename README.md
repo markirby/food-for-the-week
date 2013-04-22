@@ -2,72 +2,52 @@
 
 Just the meals I'm cooking each week, in a single file, committed week by week for my reference
 
-## Feb 24th - 
+## April 22nd
 
-### Sunday
+### Mon
 
-* Take out pies
+* sandwich fillings (fish pate)
+* smoothie
+* yoghurt
 
-### Monday
+ham hock 650g
+peas 200g shelled weight
+garlic a large clove
+parsley a small bunch
+chives and basil leaves a handful
 
-Oscar Dips
+http://www.guardian.co.uk/lifeandstyle/2013/apr/20/nigel-slater-spring-soup-recipes
 
-Silver Linings Playbook
-http://www.bbcgoodfood.com/recipes/4526/cream-cheese-and-sweet-chilli-dip
+With the bread
 
-* 200g cream cheese
+### Tue
 
-Life of Pi
+* 3 lrg Carrots
+* 3 lrg Parsnips
+* 1 sm swede
+* 3 limes
+* 6 lime leaves fresh
+* 30 curry leaves fresh
+* 10 spring onions
+* corriander
 
-* Tiger bread
+http://www.guardian.co.uk/lifeandstyle/2013/jan/25/root-vegetables-lamb-pie-recipe
 
-Zero Dark Thirty
-http://www.guardian.co.uk/lifeandstyle/wordofmouth/2011/aug/11/how-to-make-perfect-hummus
+Start bread
+Make enough curry for 2 nights, freeze
 
-* Chickpeas can 800g
-* Pitta
+### Wed
 
-* Take out gnochhi
+Rest of soup (invite Alex)
 
-Django unchained
-http://spoonful.com/recipes/roasted-red-pepper-feta-dip
+Take out pizza base, tomato sauce
 
-* Jar roasted red peppers
-* Feta
-* Nachos
+### Thur
 
-Beasts of the southern wild
-http://www.detroitnews.com/article/20130201/OPINION03/302010302
+Bake bread
 
-* 1 pound crabmeat
-* Celery
-* Carrot
-* Breadsticks
+Susan cooks
 
-Les Misérables
+### Fri
 
-* French bread
-
-Lincoln
-
-* Apple cake
-
-Argo
-http://food52.com/recipes/3541-yoghurt-spinach-dip-borani-esfanaaj-in-the-persian-manner
-
-* 2 packet baby spinach
-* walnuts
-* Greek yoghurt
-* Dried mint
-* Garlic head
-
-
-### Tuesday
-
-Korean pies
-
-### Weds
-
-Gnochhi
-
-### Thurs - No cooking
+Pizza?
